@@ -1,4 +1,4 @@
-# lidy anf tweb3
+# lidya nft web3
 - 0xlidya (1).jpg
 - 0xlidya (2).jpg
 - 0xlidya (3).jpg
