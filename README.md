@@ -1,4 +1,4 @@
-# lidya profile web3
+# lidya profilea web3
 - 0xlidya (1).jpg
 - 0xlidya (2).jpg
 - 0xlidya (3).jpg
